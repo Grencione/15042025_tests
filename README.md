@@ -4,4 +4,4 @@ Ricards
 Emils Līberts
 Gustavs
 Janis Cerins (sveikini)
-Krisjanis
+Krisjanis Harapetjans
