@@ -2,6 +2,6 @@
 Tatjana Grencione
 Ricards Lisovskis
 Emils Līberts
-Gustavs
+Gustavs bortkevics
 Janis Cerins (sveikini)
 Krisjanis Harapetjans
