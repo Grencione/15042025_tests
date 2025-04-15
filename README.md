@@ -2,6 +2,6 @@
 Tatjana Grencione
 Ricards
 Emils
-Gustavs
+Gustavs bortkevics
 Janis
 Krisjanis
