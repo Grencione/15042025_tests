@@ -1,6 +1,6 @@
 # 15042025_tests
 Tatjana Grencione
-Ricards
+Ricards Lisovskis
 Emils Līberts
 Gustavs
 Janis Cerins (sveikini)
